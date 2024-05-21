@@ -1,5 +1,5 @@
 # ```stormware```
 
- ```im still trying to figure out what this is..```
+ ```erm stormhub 2```
 
-```prolly a chat app 🤷```
+```im doing more ig 🤷```
